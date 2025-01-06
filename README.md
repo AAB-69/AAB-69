@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any hardware projects.
 - 📫 How to reach me anytime I am available.
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I am not in a bad mood, I just dont care.
+- ⚡ Fun fact: I am not in a bad mood, I am just busy.
 
 <!---
 AAB-69/AAB-69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
